@@ -17,3 +17,4 @@ Encontrar um parceiro ou amigo para formar equipe ou dupla e jogar Free fire ,  
 Ao Entrar no servidor , por favor entre em contato com algum administrador/moderador para que você seja incluso como membro.
 
 -Mais uma vez seja Bem Vindo e tenha um bom jogo!.
+
